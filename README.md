@@ -28,6 +28,9 @@ DOWNLOAD FIRST THE QR CODE TEMPLATE
 
 ➡️[EDITOR CODE CLICK ME TO DOWNLOAD](https://play.google.com/store/apps/details?id=io.spck)⬅️
 
+
+BEFORE YOU START WATCH THIS TUTORIAL VIDEO THIS TUTORIAL VIDEO WILL BE THE MAIN SYSTEM OF CODE 
+
  [![Watch the video tutorial](https://i.imgur.com/ABC123.png)](https://imgur.com/a/xdS8DQv)
 
  
