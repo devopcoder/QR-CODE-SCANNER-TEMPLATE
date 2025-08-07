@@ -11,6 +11,9 @@
 - - - - -
 DOWNLOAD FIRST THE QR CODE TEMPLATE
 ![BANNER](https://imgur.com/sl3hfuf.jpg)
+
+➡️[EDITOR CLICK ME TO DOWNLOAD](https://play.google.com/store/apps/details?id=io.spck)⬅️
+ 
 - - - - - - 
 - - - - -
 
@@ -47,7 +50,6 @@ STEP 3 =  EDIT THE EMAIL OF ADDMIN , ADVISER AND TIME LATE EDIT
  .➡️LINE OF TIME EDIT
 ![BANNER](https://imgur.com/fVPLhtq.jpg)
 
- ➡️[THE APP I USE CLICK ME TO DOWNLOAD](https://play.google.com/store/apps/details?id=io.spck)⬅️
  
  - - - - - - 
  - - - - -
