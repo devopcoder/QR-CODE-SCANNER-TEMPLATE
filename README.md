@@ -10,6 +10,9 @@
 - - - - - - 
 - - - - -
 DOWNLOAD FIRST THE QR CODE TEMPLATE
+![BANNER](https://imgur.com/sl3hfuf.jpg)
+- - - - - - 
+- - - - -
 
 STEP 1 = MAKE A GOOGLE SHEET AT 
 
