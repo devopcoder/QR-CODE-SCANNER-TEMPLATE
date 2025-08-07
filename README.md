@@ -200,3 +200,10 @@ COPY THAT ⬆️⬆️⬆️⬆️⬆️⬆️⬆️
 
  - - - - - -
  - - - - - -
+
+© 2025 Christann Marcelo. All rights reserved.
+
+This QR Code Template and associated files are the intellectual property of Christann Marcelo.
+Unauthorized copying, distribution, or modification of any part of this project without explicit permission is strictly prohibited.
+
+For inquiries, permissions, or licensing, contact: dricaonul9@gmail.com
