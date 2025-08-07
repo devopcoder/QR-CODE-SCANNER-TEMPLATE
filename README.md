@@ -9,6 +9,7 @@
 
 - - - - - - 
 - - - - -
+DOWNLOAD FIRST THE QR CODE TEMPLATE
 
 STEP 1 = MAKE A GOOGLE SHEET AT 
 
