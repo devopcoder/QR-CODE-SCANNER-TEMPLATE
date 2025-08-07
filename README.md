@@ -16,7 +16,7 @@ DOWNLOAD FIRST THE QR CODE TEMPLATE
 - - - - -
 
 
-➡️[THE APP FILE EDIOTR I USE CLICK ME TO DOWNLOAD](https://play.google.com/store/apps/details?id=io.spck)⬅️
+➡️[THE APP FILE EDIOTR I USE CLICK ME TO DOWNLOAD](https://play.google.com/store/apps/details?id=ru.zdevs.zarchiver)⬅️
 
 - - - - - -
 - - - - -
