@@ -65,10 +65,10 @@ STEP 3 =  EDIT THE EMAIL OF ADDMIN , ADVISER AND TIME LATE EDIT
 ![BANNER](https://imgur.com/gV7fNk1.jpg)
 .
 ➡️LINE OF EDIT EMAIL
-![BANNER](https://imgur.com/CYnqVzW.jpg)
+![BANNER](https://imgur.com/i9WIXdr.jpg)
  
  .➡️LINE OF TIME EDIT
-![BANNER](https://imgur.com/fVPLhtq.jpg)
+![BANNER](https://imgur.com/YctBiVm.jpg)
 
  
  - - - - - - 
